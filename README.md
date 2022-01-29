@@ -1,5 +1,4 @@
 ### Hi there 👋
-:
 
 - 🔭 I’m currently working on myself to be a better problem solver.
 - 🌱 I’m currently learning as much as I can learn to grow better.
